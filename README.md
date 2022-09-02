@@ -12,7 +12,7 @@ My goal is to give good influence to society.<br/>
 
 <br/><br/>
  
-<h3>💻 Tech Stack! 💻</h3>
+<h3>💻 Tech Stack!! 💻</h3>
  
 <br/>
 
