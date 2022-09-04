@@ -6,8 +6,8 @@
 <br/>
 <h3>Hello!!!! 😀</h3><br/>
 Nice to meet you!, I'm Hyesil (sily).<br/>
-My goal is to give good influence to society.<br/>
-
+My goal is to give good influence to society. <br/>
+Thank you to visit my web site!! <br/>
 
 
 <br/><br/>
