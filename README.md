@@ -12,7 +12,7 @@ Thank you to visit my web site!!!! <br/>
 
 <br/><br/>
  
-<h3>💻 Tech Stack!! 💻</h3>
+<h3>💻 Tech Stack!!! 💻</h3>
  
 <br/>
 
