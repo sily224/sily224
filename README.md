@@ -9,6 +9,7 @@ Nice to meet you!!, I'm Hyesil (sily).<br/>
 My goal is to give good influence to society. <br/>
 Thank you to visit my web site!!!! <br/>
 
+Now, I studying Elice tranck!<br/>
 
 <br/><br/>
  
