@@ -11,6 +11,7 @@ Thank you to visit my web site!!!! <br/>
 
 Now, I studying Elice track!<br/>
 
+my first team project is hugging
 <br/><br/>
  
 <h3>💻 Tech Stack!!! 💻</h3>
